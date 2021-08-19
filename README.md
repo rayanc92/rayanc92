@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rayanc92
 - Do some gang shit outside (sike)
 - do some 😎 shit inside (fact)
-- futur big programmator or basketball player
+- futur big computer programmer or basketball player
 - text me at my insta account: youngrc92
 
 <!---
